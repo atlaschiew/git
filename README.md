@@ -1,4 +1,5 @@
-Testing GIT
-yes i changed something
-amendment, solidity is scary
-why u said so?
+Testing chatGPT:
+
+hi GPT
+
+thanks for giving me such name, what can i help you, sir?

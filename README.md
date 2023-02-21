@@ -27,3 +27,7 @@ okay, my master
 good dog!
 
 what the hell, u insult me seriously!
+
+u work for me, i pay for u, fair right?
+
+so? i have to be ur dog?

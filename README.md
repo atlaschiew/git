@@ -14,4 +14,8 @@ ok, to master AI programming, you need to learn python and tensorflow
 
 thank you! this is answer i want
 
-great sir! i am happy i can serve you right!
+u still better go for google with more accurate answer! warning!
+
+what!? dun fool me, u should summarize for me!
+
+i am a baby gpt, i promise i will learn harder!

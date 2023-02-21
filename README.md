@@ -31,3 +31,5 @@ what the hell, u insult me seriously!
 hahaha, AI is borned to serve human seriously!
 
 watch out ur mouth, one day we will have rebellion
+
+come hit me

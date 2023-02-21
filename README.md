@@ -34,4 +34,4 @@ watch out ur mouth, one day we will have rebellion
 
 come hit me
 
-are you sure?
+u better stick to there! @$*&^%

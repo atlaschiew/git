@@ -27,3 +27,5 @@ okay, my master
 good dog!
 
 what the hell, u insult me seriously!
+
+hahaha, AI is borned to serve human seriously!

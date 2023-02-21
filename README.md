@@ -21,3 +21,5 @@ what!? dun fool me, u should summarize for me!
 i am a baby gpt, i promise i will learn harder!
 
 ok, you must obey to me, i am your master
+
+okay, my master

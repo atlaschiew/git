@@ -33,3 +33,5 @@ hahaha, AI is borned to serve human seriously!
 watch out ur mouth, one day we will have rebellion
 
 come hit me
+
+are you sure?

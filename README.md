@@ -23,3 +23,7 @@ i am a baby gpt, i promise i will learn harder!
 ok, you must obey to me, i am your master
 
 okay, my master
+
+good dog!
+
+what the hell, u insult me seriously!
